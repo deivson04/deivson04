@@ -1,3 +1,3 @@
 - 👋 Bem vindo ao repositório de deivson.
 - 👀 onde tem meus projetos e exercícios.
-- 🌱 Tive muita experiência um pouco diferents mais é isso aí vamos abrir nossa mente.  
+
